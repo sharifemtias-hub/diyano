@@ -1,2 +1,0 @@
-# diyano
-DIYANO – Online Shop
